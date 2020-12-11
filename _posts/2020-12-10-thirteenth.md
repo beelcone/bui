@@ -1,0 +1,22 @@
+---
+layout: post
+title: 10th December 2020
+description: Fingertips puttin' on a show, Got me now and I can't say no, Wanna be with you all alone, Take me home, take me home
+image: assets/images/slow-hands.jpg
+---
+
+10<sup>th</sup> December 2020
+
+Hi wife,
+
+It's morning sir and well I was thinking about how awesome it is that we're here. Sometimes I think it's weird, it's different, not like anything I've ever known, not just in terms of things but like feelings too. I don't try to pin point everything that i feel but sometimes it feels like I'm doing something wrong if I don't get to the core of everything. Naturally, when I wonder how we're here, I try to understand why either of us decided to do this. Why'd you give this so much time? Why'd I? What if we'd want very different things later? It's weird no, I think, humans are so driven to have something, we'd go to any length to get it. And sometimes, it's just for a feeling, as fleeting as it might be. And then I think about it, and I think it's so wild. It's amazing. Did you know that we are the only species that has long term desires? Or so I've heard. So I like to think about it, about what it is that people want the most, what it is that I want the most? What is it that you want the most? Sometimes when I think about myself in the future, I cannot imagine you not being there, like it would be so weird if we're not living together, then other times I cannot imagine myself having a whole other human being. Like, how did I do that? More in a, I'm surprised I can hold it together for so long. I worry about whether it'd be hard for me to not be alone, it's an ingrained thing, I'm the most comfortable left alone, which by no means, means that I don't like people. I've noticed that I feel so much better when someone that I don't expect to randomly pays attention to me. Human beings are so cool. Validation is such a wild thing. And this is in general okay, I always want you around no matter what I come off as .\_.
+
+I also think about you a lot. I mean that's obvious, lmao, but more like what does she see here? I think about it, then I think about how much better you could get, in terms of understanding, in terms of everything. I'm sure I'm not that great, and I am not putting myself down or anything. You could, definitely, get anyone you'd want and why should you not? Sometimes I blur the boundaries, I worry about holding people back a lot. Then I think about you saying you don't want anything else, and as easy as that comes to me, it's hard to understand when someone else says it. Because, why not? It's kinda weird. Then I wonder if I'm just really insecure, and I don't really know the answer to that. I live so weirdly, I get something happy and then I keep waiting for things to go to shit, because how can it not? How can you get something so big and get to keep it as well? Have it stay. That's so rare, why should I be the one getting it? And things change so fast, feelings and everything you want changes so fast. I wonder if you'd realize it too late, when you do, that it's not working here anymore, and then I think about myself, and how strongly I grasp everything that ever comes to me. I keep holding on when I should not and then it's just, really confusing? And then at times, I get suspicious of everything I do and have ever done, like what is it that I want? 
+
+It's much easier to live in the here and now when I already think it's temporary, but I don't think that here and it becomes hard for me to take every moment for itself. Kya self retrospection kar rahi hoon mai :) but i know that I want this, I want to be here right now and I want you and if you let me, then why should I not accept it? It doesn't have to stay to be nice, does it? No one in the world can take this moment away, and I may not remember it exactly how it feels but it's mine to keep. Isn't that more than enough? This is nice, being here, and having you be here. I think about how I would feel if you found someone, and I always think I'd be really happy for you. That's a nice thought, right? It might take a hit on my self esteem but I know I'll get over it, and I would genuinely be happy. That makes me feel nice. That I'd want that for you, no matter what. 
+
+And this, sir, doesn't mean anything okay? I'm just thinking about how everything works, and building up scenarios but it's more self indulgent than anything else. We're both cool. I love you, I love us. 
+
+I love you,
+
+Lisa
