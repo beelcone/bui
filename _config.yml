@@ -4,7 +4,7 @@ subtitle:
 email:
 description: Hi, Happy Birthday! I kinda wrote letters for you and I thought adding it like this here is a little nicer than giving the google doc link so, here it is. I was also going to do this music thing, but I could not, since things came up and I am a little slow with everything. Anyway, I love you so much sir, Happy Birthday again!
 baseurl: "/bui" # the subpath of your site, e.g. /blog
-url: # the base hostname & protocol for your site
+url: "https://beelcone.github.io" # the base hostname & protocol for your site
 author: Lisa
 street_address:
 city:
